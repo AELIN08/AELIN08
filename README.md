@@ -1,16 +1,18 @@
-### Hi there 👋
+BIENVENIDA CRIATURA DEL MAL ![alt text](https://i.pinimg.com/originals/97/42/a4/9742a44de5f2b13a760d47187117a539.gif "")
 
-<!--
-**AELIN08/AELIN08** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# AELIN IS EVELIN ALEXIA 
+* STEAM Mexican women 📍💜
+* Electrical Engineering Student
+* Fronted Developer
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## **✨Engineer by day, Fairy by night✨**
+
+## [Correo](evelinalexia.mondragon@gmail.com) 📧
+
+## [LinkedIn](https://www.linkedin.com/in/evelin-mondragon-1296b1299/) 🤠
+
+## I like learning, explorer and creater. 
+### 🦝🧚‍♀️💃🎞🎨📸🍕🧃🌺🍃🌵🍁
+![alt text](image.png)
+
