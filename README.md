@@ -3,9 +3,9 @@
 ![alt text](https://i.pinimg.com/originals/97/42/a4/9742a44de5f2b13a760d47187117a539.gif "")
 
 # AELIN IS EVELIN ALEXIA 
-* STEAM Mexican women 📍💜
+* STEM Mexican women 📍💜
 * Electrical Engineering Student
-* Fronted Developer
+* Full Stack Web Developer
 
 
 ## **✨Engineer by day, Fairy by night✨**
@@ -16,5 +16,6 @@
 
 ## I like learning, explorer and creater. 
 ### 🦝🧚‍♀️💃🎞🎨📸🍕🧃🌺🍃🌵🍁
-![alt text](https://i.pinimg.com/564x/ae/0e/9f/ae0e9f55d1a68fc9bb0e91aa40cc6931.jpg)
+![alt text](https://i.pinimg.com/564x/31/b5/96/31b5966a938c9dfdd0ad60480ee3bb7a.jpg)
+
 
